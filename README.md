@@ -10,4 +10,7 @@
 #### What I want to do
 - I’m looking to collaborate on a fun research project that analyzes sports, health, or college life.
 ##### How to contact me
-- My phone number is 815-721-2957 and my email is mmandzen@uiowa.edu
+- I communicate via phone and email
+    - 815-721-2957
+    - mmandzen@uiowa.edu
+    
