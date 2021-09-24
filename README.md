@@ -1,4 +1,4 @@
-# Who I am
+# Who I am 
 - Hi, I’m @matthewmandzen, a Junior at the University of Iowa. My major is Business Analytics, and this is my first time utilizing Github.
 ## What I love
 - I’m interested in sports and exercise, along with making memories with my friends. I believe that building healthy relationships and helping people is the key to a happy life.
